@@ -16,7 +16,7 @@ Beyond academics, I enjoy expressing my creativity through arts and crafts. I cr
 
 💌 If you'd like a portrait commission, feel free to contact me!
 
-📧 *Email:* angelene.ariare.laverdad@gmail.com
+📧 *Email:* angelene.ariate.laverdad@gmail.com
 
 ---
 

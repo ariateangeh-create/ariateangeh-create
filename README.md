@@ -45,7 +45,6 @@ Beyond academics, I enjoy expressing my creativity through arts and crafts. I cr
 
 - Perform Computer Operations – ACE (2022)
 - Computer Hardware Basics – Cisco (2025)
-- Transformation & Image Enhancement – Alison (2025)
 
 ---
 
